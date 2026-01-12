@@ -1,14 +1,12 @@
 
-Highly analytical and bicultural fluent Master of Science in Business Analytics (MSBA) student at Santa Clara University, targeting Summer 2026 internships across BA/DA, Product Management, and Consulting roles.As a Canadian-Chinese professional, I bring a unique, dual-market perspective that ensures strong analytical and communication skills across diverse international teams. I aim to combine my past client-facing experience from Canada 🇨🇦 with the technical expertise developed during my MSBA in the U.S 🇺🇸 to define strategic, data-driven solutions and contribute directly to organizational success.
+Highly analytical and bicultural MS in Business Analytics (MSBA) student at Santa Clara University, targeting Summer 2026 internships across Business Analytics, Data Analytics, Product Management, and Consulting.
 
-My MSBA training provides a strong foundation in the practical, in-demand skills needed to translate data into action:
+As a Canadian–Chinese professional 🇨🇦 🇨🇳, I bring a dual-market perspective with strong analytical and stakeholder communication skills across international teams. I combine client-facing experience in Canada with technical training in the U.S. 🇺🇸 to deliver data-driven, strategic solutions.
 
-Data Analysis & Visualization: Currently developing expertise in data analytics with the application of tools like SQL and Python to extract, analyze, and communicate insights using dashboards and compelling data stories (Tableau)
+**Core strengths include:**
+- Data analysis & visualization using SQL, Python, and Tableau
+- Metric design and performance measurement
+- Translating technical insights into executive-ready recommendations
+- Project coordination across cross-functional stakeholders
 
-Metric Design & Quantification: Ability to define key business metrics, assess performance, and apply rigorous methodologies to measure the impact of product and business decisions.
-
-Execution & Communication: Translating complex technical findings into clear, actionable business recommendations for executive stakeholders (a key skill for PM and Consulting).
-
-Project Management: Proven ability to scope projects, coordinate tasks, manage cross-functional stakeholders, and drive delivery from concept to completion.
-
-I am actively networking with alumni and recruiters seeking top-tier talent for the Summer 2026 application cycle. I am open to any opportunities in the U.S, Canada and Hong Kong. Let's connect to discuss opportunities where my data expertise and global mindset can drive impact!
+I am actively networking with alumni and recruiters and am open to opportunities in the U.S., Canada, and Hong Kong.
