@@ -9,4 +9,4 @@ As a Canadian–Chinese professional 🇨🇦 🇨🇳, I bring a dual-market pe
 - Translating technical insights into executive-ready recommendations
 - Project coordination across cross-functional stakeholders
 
-I am actively networking with alumni and recruiters and am open to opportunities in the U.S., Canada, and Hong Kong.
+I am actively networking with alumni and various professionals and am open to opportunities in the U.S., Canada, and Hong Kong.
