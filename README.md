@@ -1,4 +1,4 @@
-# Read-me
+
 Highly analytical and bicultural fluent Master of Science in Business Analytics (MSBA) student at Santa Clara University, targeting Summer 2026 internships across BA/DA, Product Management, and Consulting roles.
 As a Canadian-Chinese professional, I bring a unique, dual-market perspective that ensures strong analytical and communication skills across diverse international teams. I aim to combine my past client-facing experience from Canada 🇨🇦 with the technical expertise developed during my MSBA in the U.S 🇺🇸 to define strategic, data-driven solutions and contribute directly to organizational success.
 My MSBA training provides a strong foundation in the practical, in-demand skills needed to translate data into action:
