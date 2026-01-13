@@ -1,7 +1,7 @@
 
 Highly analytical and bicultural MS in Business Analytics (MSBA) student at Santa Clara University, targeting Summer 2026 internships across Business Analytics, Data Analytics, Product Management, and Consulting.
 
-As a Canadian–Chinese professional 🇨🇦 🇨🇳, I bring a dual-market perspective with strong analytical and stakeholder communication skills across international teams. I combine client-facing experience in Canada with technical training in the U.S. 🇺🇸 to deliver data-driven, strategic solutions.
+As a Canadian–Chinese professional 🇨🇦, I bring a dual-market perspective with strong analytical and stakeholder communication skills across international teams. I combine client-facing experience in Canada with technical training in the U.S. 🇺🇸 to deliver data-driven, strategic solutions.
 
 **Core strengths include:**
 - Data analysis & visualization using SQL, Python, and Tableau
