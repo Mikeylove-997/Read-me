@@ -1,5 +1,5 @@
 
-Highly analytical and bicultural MS in Business Analytics (MSBA) student at Santa Clara University, targeting Full-time opportunities across Business Analytics, Data Analytics, Product Management, and Consulting.
+Highly analytical and bicultural MS in Business Analytics (MSBA) professional at Santa Clara University, graduating in December 2026. I am targeting Full-time opportunities across Business Analytics, Data Analytics, Product Management, and Consulting. 
 
 As a Canadian–Chinese professional 🇨🇦, I bring a dual-market perspective with strong analytical and stakeholder communication skills across international teams. I combine client-facing experience in Canada with technical training in the U.S. 🇺🇸 to deliver data-driven, strategic solutions.
 
